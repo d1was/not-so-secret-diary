@@ -20,3 +20,21 @@ So.. I'm gonna sign out for today, it's 9pm now. Tomorrow, i'll have to wake up 
 
 I woke up at 3:45 in the morning. Straight up went to the bathroom, get freshed, then get dressed with my linkin park half sleeve vest and argentina world cup 2018 short. Then, i picked my nokia phone, it was 4:00 when i went downstairs. Then warmed up for 20 minutes with light exercise. It was 4:21 when i reached the main highway from where i  decided to start my run. Then with little steps forward, shifting one leg forward turnwise, i started my journey.  
 After running for 1 KM, i felt my knees shaking and i was breathing faster. I remembered to put my back straight and not to rush while running. I slowly ease my breath and went with the flow. It was very dark, stars were twinkling. I was the only one in the road for most of the times. One after another i passed the kilometer pillar. I was very tired when i reached 5KM mark. I checked my mobile and it was 4:58. I tied my shoe lace and then returned the same path. Morning light was shining and people's number in the road began to rise as the time passes. I was very tired during 7KM mark, but deep down i was just running with the wind. I was just letting myself go, and was not making any effort to run. My body was just shifting forward automatically. At 9KM I was out of my breath.My running pace was very slow at this time. I was thinking in one part of the mind to give up. But then again i thought just one kilometer more. Just one breath more, just one step more. Then i kept going, i felt very refreshed when i saw that 10KM pillar from far aside. I then kept running defying my lungs. And at last, i did it. I ran 10KM. I felt very good and very happy. I then thought, yeah i'll do it tommorow again.
+
+- Total distance ran: 10KM  
+- Started Time:  4:21 AM 
+- Finished Time:  5:28 
+- Total Time taken:  1 hour 7 minutes 
+
+
+
+## Day 2 
+
+Today's September 22nd of 2020. I hesitated a little when the alarm rang on 3:50 AM. My eyes were not full confident to open the shutter, but my brain forced them to. Then i went straight outta my bed to the bathroom and got refreshed. I picked my manchester united 2018/19 away shirt, and a bandana which i made of using my brother's rumaal. The bark of dogs were echoing from far aside. I went downstairs and did some warmup, stretched my legs. It was 4:30 when i started to run. As always, it was very dark, and i can only see some feet ahead of me. I started very slowly and calmly. I breath in and out in every four steps. I felt like i was in total control. After running 2KM, there were other runners too who ran past me with quite ease. I wanted to race them but i thought about the destination, and decided to continue with my slow pace. After running 3rd kilometere, i saw them resting on the road but i kept going. While running, my mind was going places. It was thinking everything it could.  
+Slowly and slowly, i get past 4th and 5th KM mark. Then i tied my lace and returned the same path. At 7KM mark, i was so much tired that i felt at a time to say "This is it, I can't do it anymore". But luckily i didn't. I just tried to ignore my breath, and thought about other things. My mobile phone was singing Forty Six and two and that surely made my blood pumped. I passed 8th KM mark. It suddenly began to start raining lightly. Then, i up the speed. At the moment i was just running with my willpower. My lungs were contracting and expanding at very high rate. My body language changed to the very bad posture. I was trying to look forward most of the time but i wasn't been able to at that last moment. Then after struggling for some moment, i finally saw final KM mark. I relieved. I upped my speed even more. I was running like i was being chased from zombies in the apocalypse. Then, when i crossed the 10KM mark, oh my goodness, i felt so so good. I remembered a reddit quote, "If you think sex feels good, you've never completed a 10K run.". :D  
+Now i want to sign out, if i run tommorow i'll surely update.
+
+- Total distance ran: 10KM  
+- Started Time:  4:30 AM 
+- Finished Time:  5:33 AM
+- Total Time taken:  1 hour 3 minutes 

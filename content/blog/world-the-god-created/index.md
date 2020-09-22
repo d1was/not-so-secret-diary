@@ -1,15 +1,15 @@
----
-title: "इश्वोरले बनाको संसार "
-slug: world-the-god-created
-description: "A short poem i wrote about destination"
-date: 2020-03-27 10:17:58
-author: "diwas kc"
-tags:
-  - Thoughts
-  - Poem
-cover: ""
-fullscreen: true
----
+  ---
+  title: "इश्वोरले बनाको संसार "
+  slug: world-the-god-created
+  description: "A short poem i wrote about destination"
+  date: 2020-03-27 10:17:58
+  author: "diwas kc"
+  tags:
+    - Thoughts
+    - Poem
+  cover: ""
+  fullscreen: true
+  ---
 
 खोज्दै जानेछु म एक दिन  
 इश्वोरले बनाको संसार  
