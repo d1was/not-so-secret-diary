@@ -38,3 +38,13 @@ Now i want to sign out, if i run tommorow i'll surely update.
 - Started Time:  4:30 AM 
 - Finished Time:  5:33 AM
 - Total Time taken:  1 hour 3 minutes 
+
+
+## Day 2 
+
+Finally..again. I've planned this challenge to do in 30 consecutive days and i seem to have failed it because there're so many gap days inbetween. But i'll sure run 10k for 30 days. Today's date first of october.Last day i ran was 22nd of september.so 8 days. dont want to live in excuses but it ran like 4 or 5 days and other  3 or 4 days i was extremly lazy to wake up. But today was a diffrent day. I woke up and ran like a maniac talking to myself.Actually i was recording myself ..so i talked about some stuff. but after i came home and listened to it, i couldnt hear myself in that audio. Oh god..all those wise talks wasted. But doesn't matter because i ran. It helped in some other way.Hopefully i'll run tommorow too.
+
+- Total distance ran: 10KM  
+- Started Time:  4:35 AM 
+- Finished Time:  5:39 AM
+- Total Time taken:  1 hour 4 minutes 
