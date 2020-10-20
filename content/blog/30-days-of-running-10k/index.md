@@ -1,5 +1,5 @@
 ---
-title: "30 days of running 10K"
+title: "Habit of Running(30 days running journal)"
 date: 2020-09-18 21:00:00
 author: "Diwas KC"
 tags:
@@ -40,7 +40,7 @@ Now i want to sign out, if i run tommorow i'll surely update.
 - Total Time taken:  1 hour 3 minutes 
 
 
-## Day 2 
+## Day 3
 
 Finally..again. I've planned this challenge to do in 30 consecutive days and i seem to have failed it because there're so many gap days inbetween. But i'll sure run 10k for 30 days. Today's date first of october.Last day i ran was 22nd of september.so 8 days. dont want to live in excuses but it ran like 4 or 5 days and other  3 or 4 days i was extremly lazy to wake up. But today was a diffrent day. I woke up and ran like a maniac talking to myself.Actually i was recording myself ..so i talked about some stuff. but after i came home and listened to it, i couldnt hear myself in that audio. Oh god..all those wise talks wasted. But doesn't matter because i ran. It helped in some other way.Hopefully i'll run tommorow too.
 
@@ -48,3 +48,8 @@ Finally..again. I've planned this challenge to do in 30 consecutive days and i s
 - Started Time:  4:35 AM 
 - Finished Time:  5:39 AM
 - Total Time taken:  1 hour 4 minutes 
+
+
+## Day 4,5,6,7,8,9,10,11,12,13
+
+My Apologies. I haven't stopped it completly. I'm still running. Not quite everyday but i do run. sometime gaps between run days has also large but i still go to sleep everyday with the hope that i will run tommorow. But this journaling isn't being consistent. First i thought i will run 10km everyday for 30 consecutive days. And after 2nd day i gave up running consecutively and after 4th i gave up 10km. It was too much for my body. After 10KM run, i do nothing than rest. So, with my dayjob i couldn't continue it. But nevertheless, i'm still running and i thank god for that.s
